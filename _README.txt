@@ -1,0 +1,1 @@
+Please ask before you use my work, and please provide credit.
